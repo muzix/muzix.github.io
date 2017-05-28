@@ -1,1 +1,1 @@
-## Price chart will coming soon!
+## Price chart is coming soon!
